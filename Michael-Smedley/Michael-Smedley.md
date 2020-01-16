@@ -37,6 +37,10 @@ Setting up CRM, pipelines sales commission plans, quoting tools and KPIs - He ha
 
 Michael Specialises in:
 
+*   Sales and Sales Managment
+
+*   Project manager and Scrum coach 
+
 *   Digital Marketing and Sales Strategy  
 
 *   Building business cases and cost-benefit analysis  
